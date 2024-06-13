@@ -4,5 +4,5 @@ sou estudante de tecnologia
 
 - aprendendo na a plataforma alura
 
-  ![](https://media1.tenor.com/m/scIrwomaRM4AAAAd/reload-gun-deadpool.gif)
-
+  ![](![image](https://github.com/brener200/brener200/assets/172597133/103600b4-7546-421b-97f2-8f9e657c3ed2)
+  
